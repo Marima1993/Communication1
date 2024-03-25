@@ -4,7 +4,7 @@ Communication basics
 
 # What are the key components of intercultural communication?
 
-Intercultura communication focuses on accumulating knowledge about a culture through communication in the form of shared stories based on subjective, individual experiences.
+Intercultural communication focuses on accumulating knowledge about a culture through communication in the form of shared stories based on subjective, individual experiences.
 
 # How does cultural context influence communication styles and norms?
 
